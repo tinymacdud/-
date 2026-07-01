@@ -25,7 +25,9 @@
 
 @ take me to heaven !!
 
-* social links!! : https://www.patreon.com/RRsRno2I_H/ https://www.tiktok.com/users/@lentidentuhhh https://www.roblox.com/users/10923306791/profile
+* social links!! : https://www.patreon.com/RRsRno2I_H/ https://www.tiktok.com/users/@lentidentuhhh https://www.roblox.com/users/10923306791/profile !!
+
+  THE END!!(,editing soon ^_^)
 
 
 
