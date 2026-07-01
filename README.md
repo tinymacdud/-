@@ -25,7 +25,7 @@
 
 @ take me to heaven !!
 
-* social links!! : https://www.patreon.com/RRsRno2I_H/ tiktok.com/@lentidentuhhh 
+* social links!! : https://www.patreon.com/RRsRno2I_H/ https://www.tiktok.com/users/@lentidentuhhh 
 
 
 
