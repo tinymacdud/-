@@ -4,3 +4,8 @@
 </div>
 <div align=" center">
 # 🧁 . ron fictionkin !! hello !! my name is vanvan or call me sword! demiboy and aromatic ^0^
+<div align="center">
+  <h3> . 🍓 PLEASE DONT DO THIS 2 ME! </h3>
+</div>
+* **COPYING..** : do not copy my skin/ you can take inspo but ask!
+* **interacting WITH dni in my name.** : i mostly put dni in my name when a stressed but please dont interact when i have it in my name!
