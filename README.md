@@ -16,4 +16,4 @@
   <div align="center">
   <img src="https://64.media.tumblr.com/f6991b3f177733a36722ecdd6e80ac1d/f7926748b942db2e-98/s1280x1920/9951cf321b99f39ad9a08527778a89e1b4544e8f.gifv" width="400">
 </div>
-##- 🍉 . FANDOMS AND MAIN SERVERS!!
+🍉 . FANDOMS AND MAIN SERVERS!!
