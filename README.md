@@ -22,6 +22,4 @@
 
 * MAIN SERVERS! : safe server or safe server 2(sometimes..)! , near spawn/A.H.A area , bakery sumtimes.
 
-<div align="center">
-  <img src="https://64.media.tumblr.com/23950b31aad32f14d82981ba9eae267f/b1d800c7efcf1379-6c/s1280x1920/13109be5e7b57c2e79bb0a7498aa541e1f455abe.gifv" width="400">
-</div>
+@ take me to heaven mr zenica~
