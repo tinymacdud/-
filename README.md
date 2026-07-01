@@ -17,3 +17,10 @@
   <img src="https://64.media.tumblr.com/f6991b3f177733a36722ecdd6e80ac1d/f7926748b942db2e-98/s1280x1920/9951cf321b99f39ad9a08527778a89e1b4544e8f.gifv" width="400">
 </div>
 🍉 . FANDOMS AND MAIN SERVERS!!
+  <div align="center">
+  <img src="https://64.media.tumblr.com/23950b31aad32f14d82981ba9eae267f/b1d800c7efcf1379-6c/s1280x1920/13109be5e7b57c2e79bb0a7498aa541e1f455abe.gifv" width="400">
+</div>
+
+* FANDOMS! : GG smp/goofygang , roblox , tf2 , unstable smp ,animal hospital(anomaly) !!
+
+* MAIN SERVERS! : safe server or safe server 2(sometimes..)! , near spawn/A.H.A area , bakery sumtimes.
